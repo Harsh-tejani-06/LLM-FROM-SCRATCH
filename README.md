@@ -1,1 +1,1 @@
-A Very Special Thanks vizura and Raj Dandekar
+ Special Thanks vizuara and Raj Dandekar
